@@ -1,6 +1,6 @@
 # kirliandy.github.io
-ahahahahahahmissu
-![image](https://user-images.githubusercontent.com/118424253/202371213-014ca278-2d24-4861-8076-8694a47a1672.png)
+
+![STRANGER THINGS](https://user-images.githubusercontent.com/118424253/202371213-014ca278-2d24-4861-8076-8694a47a1672.png)
 
 BLUE BIRD ![image](https://user-images.githubusercontent.com/118424253/202375771-ec78eb36-3a67-412c-b38b-f91df37bbb2b.png)
 
