@@ -8,4 +8,3 @@ STRANGER THINGS
 MY SOCIAL MEDIA
 
 [Facebook](https://www.facebook.com/kirlian.nhikel?mibextid=ZbWKwL)
-[Ig](https://www.example.com)
