@@ -1,19 +1,21 @@
 # kirliandy.github.io
 
-## STRANGER THINGS 
 
-![STRANGER THINGS](https://user-images.githubusercontent.com/118424253/202371213-014ca278-2d24-4861-8076-8694a47a1672.png)
 
 
 ## MY SOCIAL MEDIA
 
 [Facebook](https://www.facebook.com/kirlian.nhikel?mibextid=ZbWKwL)
 
+## STRANGER THINGS 
+
+![STRANGER THINGS](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ1JPtkDPuTPPo-RfNX4FnccCj5n_ah7yX7Mza6WNqhs3-AcrtCYShDSa-m5bM0f6pfkTY&usqp=CAU)
+
 ## FAVORITE
 
 `ELEVEN
 
-![ELEVEN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSBo6O36tQEentNnNkdVCj_b07f2hQkIbN6f_pS5ewd5GpN7Wb8G6XH&usqp=CAE&s)
+![ELEVEN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSNt0XvT7C_aMirZWal3SbJqipE9nWzRvLAws6SlfbB70d76hqhQbzaovR_tOCxEWieCI0&usqp=CAU)
 
 `MIKE
 
@@ -30,3 +32,4 @@
 `WILL
 
 ![WILL](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSau3rhfzel-05R0J4hL6Nb4qcIStOZsg1QewxgTqQRMB0vjPV9bn1ql52Fhg4y7R7m2SU&usqp=CAU)
+
