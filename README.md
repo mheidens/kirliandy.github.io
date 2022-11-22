@@ -5,7 +5,9 @@
 
 ## MY SOCIAL MEDIA
 
-[Facebook](https://www.facebook.com/kirlian.nhikel?mibextid=ZbWKwL)
+📎 [Facebook](https://www.facebook.com/kirlian.nhikel?mibextid=ZbWKwL)
+
+📎[Instagram](https://www.instagram.com/kliannnn/?next=%2F)
 
 ## STRANGER THINGS 
 
