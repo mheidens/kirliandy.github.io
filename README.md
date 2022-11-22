@@ -33,7 +33,13 @@
 
 **-WILL**🎸
 
+
 ![WILL](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSau3rhfzel-05R0J4hL6Nb4qcIStOZsg1QewxgTqQRMB0vjPV9bn1ql52Fhg4y7R7m2SU&usqp=CAU)
+
+
+**-LUCAS**🎸
+
+![LUCAS](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRo9KQHTEumb31DkNXGwJpv_SE8HfeijSxhlie2nnWF0vfaxS51vSXlVlNpbMhQxDHHhns&usqp=CAU)
 
 **-fav song ko na ngayon**🥰
 
