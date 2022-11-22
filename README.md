@@ -1,6 +1,14 @@
 # kirliandy.github.io
 
+**HALLER KIRLIAN PO 'TO**
 
+-15 Years Old po hindi 12😤
+
+-nag-aaral mabuti habang inlove kay ano🤭
+
+-may healthy relationship na circle of friends🫶
+
+-hi sir Gain pogi mo po😁
 
 
 ## MY SOCIAL MEDIA
