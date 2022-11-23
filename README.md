@@ -26,8 +26,8 @@
 **-ELEVEN**🎸
 
 <p align="center">
-![ELEVEN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSNt0XvT7C_aMirZWal3SbJqipE9nWzRvLAws6SlfbB70d76hqhQbzaovR_tOCxEWieCI0&usqp=CAU)
-</p>
+  ![ELEVEN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSNt0XvT7C_aMirZWal3SbJqipE9nWzRvLAws6SlfbB70d76hqhQbzaovR_tOCxEWieCI0&usqp=CAU)
+  </p>
 
 **-MIKE**🎸
 
